@@ -1,4 +1,4 @@
-# Why Tom Brady is Replaceable (to be published on All Things Analysis)
+# The Replaceablity of Tom Brady (published on allthingsanalysis.com)
 
 
 Tom Brady has lead the Patriots in nearly every single game since the start of the 2001 NFL season. Over those 19 year, Bill Belichick coached every game, and with 6 superbowl rings both are shoo-ins for the Hall of Fame. Nevertheless, the eternal debate still rages on daytime tv and local radio of who deserves more credit for the Patriots' historic run: Brady or Belichick. Since Brady has taken his talents to Tampa Bay to work with Bruce Arians, all the pieces are in place for the 2020 NFL season to serve as an experiment, however flawed, that will be used to reevaluate the legacies of the former allies.
